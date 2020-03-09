@@ -1,2 +1,2 @@
-## Alfaizkhan.github.io
+## pasundan.me
 #### A personal portfolio👦 
